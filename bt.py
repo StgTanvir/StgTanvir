@@ -1,4 +1,4 @@
-Encrypt by Botol Baba
+Encrypt by stg 444
 # Github : https://github.com/stgtanvir
 # Facebook : https://www.facebook.com/profile.php?id=100050941253669
 # Tiktok : tiktok.com/@stg_yt444
